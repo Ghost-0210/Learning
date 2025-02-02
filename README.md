@@ -1,4 +1,4 @@
 # Learning
 Time flies, moments become memories
 <br>
-Still feels like fresh ones
+Yet feels like fresh ones
